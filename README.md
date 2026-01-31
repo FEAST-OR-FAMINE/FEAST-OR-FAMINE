@@ -1,16 +1,16 @@
-## Hi there 👋
 
-<!--
-**FEAST-OR-FAMINE/FEAST-OR-FAMINE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![imageedit_19_8486106251](https://github.com/user-attachments/assets/c369c528-9be8-42af-a71d-a99e8d6e7ca2)
 
-Here are some ideas to get you started:
+( art by  @cyanityy on tumblr.com )
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+lynn / davis / max / trent & othrs
+ 
+ c + h freely unless stated otherwise.
+ 
+ honestly, i dont really have a dni just don't be a weirdo at this point. 
+         
+         
+ 
+[atabook](jaaagerman.atabook.org)   !
+ [pronoun.cc](https://pronouns.cc/@andrewrannellingout)    !
+  [sign    that   tree   !!](colormytree.me/2025/01KC069A0A0A9GPSFSFAM8R6R7)   !
