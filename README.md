@@ -3,7 +3,7 @@
 
 ( art by  @cyanityy on tumblr.com )
 
-lynn / davis / max / trent & othrs
+ilov e love love LOVE smopkins hhhhh an and tremmy ok by e
  
  c + h freely unless stated otherwise.
  
