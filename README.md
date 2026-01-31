@@ -3,7 +3,7 @@
 
 ( art by  @cyanityy on tumblr.com )
 
-ilov e love love LOVE smopkins hhhhh an and tremmy ok by e
+ilov e love love LOVE smopkins hhhhh an and tremmy a  a a a and smidome ok by e
  
  c + h freely unless stated otherwise.
  
