@@ -11,6 +11,6 @@ lynn / davis / max / trent & othrs
          
          
  
-[atabook](jaaagerman.atabook.org)   !
+[atabook](https://jaaagerman.atabook.org/)   !
  [pronoun.cc](https://pronouns.cc/@andrewrannellingout)    !
   [sign    that   tree   !!](https://colormytree.me/2025/01KC069A0A0A9GPSFSFAM8R6R7)   !
