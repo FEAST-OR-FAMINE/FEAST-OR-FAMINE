@@ -10,3 +10,8 @@
  [prn.cc ](https://pronouns.cc/@rk1700) 
             
 [rentry wip](https://rentry.co/rtg43s38)
+
+
+<img width="384" height="209" alt="imageedit_112_2824607277" src="https://github.com/user-attachments/assets/0cc2b87e-4a68-4f61-830c-3c8c82ef36be" />
+
+
