@@ -8,25 +8,9 @@
 
 ![fag](https://github.com/user-attachments/assets/edbd5a5f-4ba8-44ca-ae19-91abe1631daa)
 
-[ata](https://hooooopkinss.atabook.org/) 
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ[prn.cc ](https://pronouns.cc/@kkclay)            
-
-
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ[straww](https://awf-lynn.straw.page/)
-
-
-
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ[spotify](https://open.spotify.com/user/31suaynu3mnlcvczw7zfmhuyjtme?si=801ce86c22104ee1)
-                                    
-ㅤㅤㅤㅤㅤㅤ 
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ
-ㅤ[new rentry](https://rentry.co/mcpriceleyfrottage)
+[ata](https://hooooopkinss.atabook.org/)
+[prn.cc ](https://pronouns.cc/@kkclay)
+[straww](https://awf-lynn.straw.page/)
+                                          [spotify](https://open.spotify.com/user/31suaynu3mnlcvczw7zfmhuyjtme?si=801ce86c22104ee1) [new rentry](https://rentry.co/mcpriceleyfrottage)
 
 
