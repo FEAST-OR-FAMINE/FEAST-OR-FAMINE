@@ -6,12 +6,6 @@
 
 ![](https://komarev.com/ghpvc/?username=FEAST-OR-FAMINE&label=latter+day+saints&color=lightgrey)
  
- [ata](https://hooooopkinss.atabook.org/)
-   
-   [prn.cc ](https://pronouns.cc/@kkclay)
-       
-  [straww](https://awf-lynn.straw.page/)
- 
- [rentry](https://rentry.co/mcpriceleyfrottage)
+ [at](https://hooooopkinss.atabook.org/)a [prn](https://pronouns.cc/@kkclay)cc  [str](https://awf-lynn.straw.page/)aw [ren](https://rentry.co/mcpriceleyfrottage)try
 
 
