@@ -7,6 +7,6 @@
 
 ![](https://komarev.com/ghpvc/?username=FEAST-OR-FAMINE&label=latter+day+saints&color=lightgrey)
  
- [at](https://hooooopkinss.atabook.org/)a [prn](https://pronouns.cc/@kkclay)cc  [str](https://awf-lynn.straw.page/)aw [ren](https://rentry.co/mcpriceleyfrottage)try
+ [at](https://hooooopkinss.atabook.org/)a [prn](https://pronouns.cc/@kkclay)cc  [str](https://awf-lynn.straw.page/)aw [ren](https://rentry.co/thebookofmormon_)try ( thanks LOSER nini -_- )
 
-
+                                                                                                                   
