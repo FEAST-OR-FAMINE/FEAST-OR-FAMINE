@@ -5,14 +5,8 @@
 ![ezgif com-effects (1)](https://github.com/user-attachments/assets/c60bea4b-8a33-456b-aa70-326c97962c89)
 
 
- 
  [at](https://hooooopkinss.atabook.org/)a
  [ren](https://rentry.co/thebookofmormon_)try 
  [pro](https://pronouns.cc/@kkclay)nouns
 
 ![](https://komarev.com/ghpvc/?username=FEAST-OR-FAMINE&label=latter+day+saints&color=lightgrey)
-
-
-
-execute loser nini
-                                                                                                                   
