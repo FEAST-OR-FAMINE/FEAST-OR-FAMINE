@@ -1,7 +1,8 @@
 
 [꠹ tr a w](https://awf-lynn.straw.page/)     .&&.   [𐍂 e ntry](https://rentry.co/gavin-prescott)  
 
-<img width="300" height="480" alt="VINCEPHONE" src="https://github.com/user-attachments/assets/87f1f71b-723a-45c1-be62-00e4a846ba16" />
+<img width="332" height="289" alt="imageedit_1_6691702081" src="https://github.com/user-attachments/assets/8683d17a-afd9-4ae9-aebc-01f67c6c132d" />
+
 
 [NEW !!!! a t ayy bookk](https://lightbending.atabook.org/)
 
