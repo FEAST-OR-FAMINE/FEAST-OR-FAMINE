@@ -2,8 +2,8 @@
 
 
 
+<img width="160" height="140" alt="Blue_and_Yellow_overworld_walk_unused" src="https://github.com/user-attachments/assets/6a4b1037-b869-4ad1-8aef-3ae1d1a8598d" />
 
-<img width="332" height="289" alt="imageedit_1_6691702081" src="https://github.com/user-attachments/assets/8683d17a-afd9-4ae9-aebc-01f67c6c132d" />
 
 
 
