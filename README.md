@@ -7,7 +7,7 @@
 
 
 
-[꠹ tr a w](https://awf-lynn.straw.page/)     .&&.   [𐍂 e ntry](https://rentry.co/gavin-prescott)  
+[꠹ tr a w](https://ja-blellow.straw.page/)     .&&.   [𐍂 e ntry](https://rentry.co/gavin-prescott)  
 
 [NEW !!!! a t ayy bookk](https://lightbending.atabook.org/)
 
