@@ -7,6 +7,7 @@
 
 [me irl no clickbait](https://youtu.be/aUSE6u5f6rw?si=ZgSRcMQM2F8dWEJ7&t=429)
 
+[crappy vn I made while on call with oomf](https://docs.google.com/presentation/d/1ZwAwLNm4QQul6dpc6xXz7cynqLFsY1BhC0npwBQTgR8/edit?usp=sharing)
 
 
 [꠹ tr a w](https://ja-blellow.straw.page/)     .&&.  [NEW !!!! a t ayy bookk](https://lightbending.atabook.org/)
